@@ -1,4 +1,4 @@
-🔴 Airtel Thanks – Bill rePayment
+🔴 Airtel Thanks – Billing 
 
 Pay your Airtel mobile, broadband, DTH, or postpaid bills instantly.
 Just scan the QR code, enter the amount, and complete your UPI payment.
